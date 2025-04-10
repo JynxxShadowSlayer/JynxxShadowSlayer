@@ -2,7 +2,7 @@
 - 👀 I’m interested in anime and hazbin hotel
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on a unblocked site
-- 📫 How to reach me: https://characterhub.com/profile/KingOfWriting 
+- 📫 How to reach me: https://characterhub.com/profile/EthanTheRizzler
 - 😄 Pronouns: they/them or He/Him
 - ⚡ Fun fact: im very smart and creative
 
